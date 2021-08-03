@@ -1,6 +1,6 @@
 # 학습로그
 
-#  미션
+# 로또 미션
 - [LOG](https://github.com/woowacourse/java-lotto/pull/313#issuecomment-786038100)
 
 <br>
