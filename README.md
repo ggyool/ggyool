@@ -1,1 +1,1 @@
-### [[링크] 포트폴리오](https://golden-cylinder-1e6.notion.site/8c3da66d572d49b39783b70c5c7d2f2b#dcba19ce8f954ec18f7852979bc16cc7)
+### [[링크] 포트폴리오](https://www.notion.so/e021dd855cb64fdab8cf48b09b73bb25)
